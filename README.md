@@ -1,16 +1,16 @@
-### Hi there 👋
+### UwU
 
-<!--
-**danielphan2003/danielphan2003** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hi, I'm very UwU.
 
-Here are some ideas to get you started:
+Whatever you may throw at me, I will stay UwU. It's a state of mind that is very UwU in its true nature.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+If you want to, I can UwU you as well ❤.
+
+- 🔭 I’m currently working on: UwU, uWu, UWU (case insensitive)
+- 🌱 I’m currently learning: uWU, Uwu
+- 👯 I’m looking to collaborate on: UWUUWUUWU
+- 🤔 I’m looking for help with UWUWUWUWUWU
+- 💬 Ask me about UWU
+- 📫 How to reach me: UWU@UWU.UWU
+- 😄 Pronouns: ~~UWU~~ he/him
+- ⚡ Fun fact: I'm very UwU
